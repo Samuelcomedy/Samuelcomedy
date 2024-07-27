@@ -1,5 +1,5 @@
-## Hi there 👋
-
+# Hi guys am Samuel by name nice meeting you All more blessing to you all 💕 👋
+ 
 <!--
 **Samuelcomedy/Samuelcomedy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
